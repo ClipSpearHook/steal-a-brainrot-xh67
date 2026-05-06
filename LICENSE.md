@@ -1,4 +1,4 @@
-
+steal a brainrot instant Script offers the most advanced steal a brainrot Script, with fly and auto-collect. Perfect for dominating any match.
 
 
 
